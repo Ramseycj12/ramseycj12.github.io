@@ -1,1 +1,0 @@
-# ramseycj12.github.io
